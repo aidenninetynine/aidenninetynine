@@ -1,3 +1,3 @@
-### Hi there 👋
-My name is Aiden, and I'm a developer (well duh, this is GitHub).
-I'm also the lead developer at Tech-no Studios (sites.google.com/view/tech-no-studios)!
+Hello! My name is Aiden, but online, I go as Aiden99.  
+I mostly make useless projects. Feel free to click off of my page, nothing of value  
+is gonna be gained from reading this page.
